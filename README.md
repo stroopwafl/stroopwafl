@@ -5,5 +5,5 @@ Magic rocks whir to the beat of Jensen \
 A whip-crack-bang-Huang \
 Abra-kadabra goes FAANG \
 Wingardium leviosa, dumbledore lore no more \
-“Altman after vindaloo and korma; hyperreal, dynamic, warmer”
+“Altman after vindaloo and korma; hyperreal, dynamic, warmer” \
 I recite the devil’s spell to a transformer
